@@ -20,7 +20,7 @@ Brock Higgins
 
 Jessica Loadenthal
 
-Stephanie Gauthier
+Matt Fedorowicz
 
 Sana Qureshi
 
@@ -35,5 +35,5 @@ Nous y parvenons des façons suivantes :
 * En agissant à titre de champion de la culture, y compris en dirigeant le Sondage trimestriel d’opinion sur la culture et en élaborant des plans d’action à des fins d’amélioration
 
 
-- La dernière mise à jour a été effectuée par Andrea le 3 septembre 2019.
+- La dernière mise à jour a été effectuée par Andrea le 6 août 2020.
 
